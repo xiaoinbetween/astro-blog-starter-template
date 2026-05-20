@@ -1,5 +1,5 @@
 ---
-title: "wholistic-Love"
+title: "Wholistic philosophy-Love"
 description: "Lorem ipsum dolor sit amet"
 pubDate: "May 20 2026"
 heroImage: "/blog-placeholder-4.jpg"
