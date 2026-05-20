@@ -1,16 +1,48 @@
 ---
-title: "Second post"
+title: "wholistic-Love"
 description: "Lorem ipsum dolor sit amet"
-pubDate: "Jul 15 2022"
+pubDate: "May 20 2026"
 heroImage: "/blog-placeholder-4.jpg"
 ---
 
-Lorem ipsum dolor sit amet, consectetur adipiscing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua. Vitae ultricies leo integer malesuada nunc vel risus commodo viverra. Adipiscing enim eu turpis egestas pretium. Euismod elementum nisi quis eleifend quam adipiscing. In hac habitasse platea dictumst vestibulum. Sagittis purus sit amet volutpat. Netus et malesuada fames ac turpis egestas. Eget magna fermentum iaculis eu non diam phasellus vestibulum lorem. Varius sit amet mattis vulputate enim. Habitasse platea dictumst quisque sagittis. Integer quis auctor elit sed vulputate mi. Dictumst quisque sagittis purus sit amet.
+So today is 520, chinese marketing wise, it's a holiday for couples. 
 
-Morbi tristique senectus et netus. Id semper risus in hendrerit gravida rutrum quisque non tellus. Habitasse platea dictumst quisque sagittis purus sit amet. Tellus molestie nunc non blandit massa. Cursus vitae congue mauris rhoncus. Accumsan tortor posuere ac ut. Fringilla urna porttitor rhoncus dolor. Elit ullamcorper dignissim cras tincidunt lobortis. In cursus turpis massa tincidunt dui ut ornare lectus. Integer feugiat scelerisque varius morbi enim nunc. Bibendum neque egestas congue quisque egestas diam. Cras ornare arcu dui vivamus arcu felis bibendum. Dignissim suspendisse in est ante in nibh mauris. Sed tempus urna et pharetra pharetra massa massa ultricies mi.
+I was having an interesting discussion with a friend about what love is, as I think love is like a spark for us as programs from the creator, and he might want to know how those programs are gonna react with this emerging spark, as basically spark breaks all the codes that you were incerted and all expectations that you have. 
 
-Mollis nunc sed id semper risus in. Convallis a cras semper auctor neque. Diam sit amet nisl suscipit. Lacus viverra vitae congue eu consequat ac felis donec. Egestas integer eget aliquet nibh praesent tristique magna sit amet. Eget magna fermentum iaculis eu non diam. In vitae turpis massa sed elementum. Tristique et egestas quis ipsum suspendisse ultrices. Eget lorem dolor sed viverra ipsum. Vel turpis nunc eget lorem dolor sed viverra. Posuere ac ut consequat semper viverra nam. Laoreet suspendisse interdum consectetur libero id faucibus. Diam phasellus vestibulum lorem sed risus ultricies tristique. Rhoncus dolor purus non enim praesent elementum facilisis. Ultrices tincidunt arcu non sodales neque. Tempus egestas sed sed risus pretium quam vulputate. Viverra suspendisse potenti nullam ac tortor vitae purus faucibus ornare. Fringilla urna porttitor rhoncus dolor purus non. Amet dictum sit amet justo donec enim.
+pero my friend believe love is just another program, like eating food or losing weight, love is nothing special, merely the funding infrastructure of two programs match and they just decide to continue to connect. one day you love this person to the heaven and another day you hate him to hell. So you can decide to input love into your program when love is good for you, settling down, having kids and etc.. 
 
-Mattis ullamcorper velit sed ullamcorper morbi tincidunt. Tortor posuere ac ut consequat semper viverra. Tellus mauris a diam maecenas sed enim ut sem viverra. Venenatis urna cursus eget nunc scelerisque viverra mauris in. Arcu ac tortor dignissim convallis aenean et tortor at. Curabitur gravida arcu ac tortor dignissim convallis aenean et tortor. Egestas tellus rutrum tellus pellentesque eu. Fusce ut placerat orci nulla pellentesque dignissim enim sit amet. Ut enim blandit volutpat maecenas volutpat blandit aliquam etiam. Id donec ultrices tincidunt arcu. Id cursus metus aliquam eleifend mi.
+once a friend was telling me that, love is, you see yourself in another person. 
 
-Tempus quam pellentesque nec nam aliquam sem. Risus at ultrices mi tempus imperdiet. Id porta nibh venenatis cras sed felis eget velit. Ipsum a arcu cursus vitae. Facilisis magna etiam tempor orci eu lobortis elementum. Tincidunt dui ut ornare lectus sit. Quisque non tellus orci ac. Blandit libero volutpat sed cras. Nec tincidunt praesent semper feugiat nibh sed pulvinar proin gravida. Egestas integer eget aliquet nibh praesent tristique magna.
+Porbably I still have romantic program within (thanks Universe!). Love is a daily decision, you wake up everyday and you will need to decide to love the person in the mirror or the person sleeping next to you. And love needs no reason, love is pure giving, love also make mistakes and you need to be aware of that. Because at the end, love is a mind state of pure joy and peace, a warm hug at winter night.
+If you know the exact reason why you love this person, and you name it well and you think you can control it well, guess it's not love. there is no reason why love exist, there is no reason why it happen between this two programs (maybe some interesting neurons are exploring underlying quantum connections, just guessing..) 
+
+when love comes, just immerse yourself into this strong energy, go with it, flow with it and see where it will bring you to. 
+when love leaves, let it go, don't hold it tight that you might lose your life. 
+True love stays, and if it leaves, it's not the love you deserve, the sooner you let go, the sooner you open the space for the right one. 
+and be aware, there are sparks everywhere! the air, the water, the mountain, the forest, the jazz music you randomly bump into, love those specific things in your life, don't love an image or a memory. 
+
+Watching <fleabag> during lunch time, and randomly comes to a clip of wedding wish from the priest: 
+  Love is awful!
+> It’s awful. It’s painful. It’s frightening.
+> It makes you doubt yourself, judge yourself.
+> It distances you from the other people in your life.
+> It makes you selfish. It makes you creepy.
+> It makes you obsessed with your hair.
+> It makes you cruel. It makes you say and do things you never thought you would do.
+>
+> It’s all any of us want, and it’s hell when we get there.
+> So no wonder it’s something we don’t want to do on our own.
+>
+> I was taught if we’re born with love, then life is about choosing the right place to put it.
+> People talk about that a lot — “feeling right,” when it feels right it’s easy.
+> But I’m not sure that’s true.
+>
+> It takes strength to know what’s right.
+> And love isn’t something that weak people do.
+> Being a romantic takes a hell of a lot of hope.
+>
+> I think what they mean is, when you find somebody that you love, it feels like hope.
+
+this make me smile. Yes, love is the hope, and we always have hope. 
+
+I love you. 
