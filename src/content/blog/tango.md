@@ -1,8 +1,8 @@
-
 ---
 title: "Tango"
-pubDate: 2024-06-15
-description: "关于tango与人生的记录"
+description: "what is this for?"
+pubDate: "June 15 2026"
+heroImage: "/blog-desert.jpg"
 ---
 
 2014｜第一次跳tango是在罗兹的国际学生之夜，算是学校组织的一个社交舞会，最开始我以为我喜欢的那个哈萨克小哥也会去。对于刚刚到波兰的我来说，认识新的朋友非常重要，但是这个舞蹈很奇怪，最后那么多的学生去，这么多年过去了，我发现只有我一个人留下了。什么原因呢，可能是罗兹温馨美好的tango氛围？可能是家一样的感觉？所以，归根到底，tango是一个双向选择，不单是你选择tango，tango也是在选择你。
